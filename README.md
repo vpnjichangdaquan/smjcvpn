@@ -13,9 +13,9 @@
 
 三毛机场注册入口：
 
-[三毛机场官网注册](https://a.wwaann.com/?s=smjc)
+[三毛机场官网注册](https://a.ggddxx.com/?s=smjc)
 
-如果该入口无法访问，请[点击此处](https://wwaann.com/)进入最新地址。
+如果该入口无法访问，请[点击此处](https://ggddxx.com/)进入最新地址。
 
 ---
 
@@ -485,9 +485,9 @@ README 中的信息主要用于方便用户快速了解基本情况，并不能�
 
 三毛机场注册入口：
 
-[三毛机场官网注册](https://a.wwaann.com/?s=smjc)
+[三毛机场官网注册](https://a.ggddxx.com/?s=smjc)
 
-如果该入口无法访问，请[点击此处](https://wwaann.com/)进入最新地址。
+如果该入口无法访问，请[点击此处](https://ggddxx.com/)进入最新地址。
 
 ---
 
